@@ -1,1 +1,1 @@
-# potato---scratch
+# potato-scratch
